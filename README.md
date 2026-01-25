@@ -1,5 +1,4 @@
 Senlas Tasks
-Домбровский Ярослав Андреевич ИКБО-61-24
 
 thats bout my experience from trying to get senlas education track
 
